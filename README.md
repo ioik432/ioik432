@@ -1,0 +1,2 @@
+- 👋 Hiya im ioik432 :) 
+- 🌱 I’m currently learning Pentesting
